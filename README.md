@@ -1,2 +1,2 @@
-# jorge vilcpuma trujillo_SOV
+# jorge vilcapuma trujillo_SOV
 
