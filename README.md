@@ -1,2 +1,2 @@
-# orge vilcpuma trujillo_SOV
- “Jorge vilcpuma trujillo_SOV” 
+# jorge vilcpuma trujillo_SOV
+
